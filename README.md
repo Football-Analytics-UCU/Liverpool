@@ -2,6 +2,6 @@
 
 ## Squad 
 
-Oleksandr Marmaliuk (oleksandrmarmaliuk@gmail.com) - match report.
+Oleksandr Marmaliuk (oleksandrmarmaliuk@gmail.com)
 
-Eugene Hromov (eugene13hromov@gmail.com) - emotional support and active conversation.
+Eugene Hromov (eugene13hromov@gmail.com)
